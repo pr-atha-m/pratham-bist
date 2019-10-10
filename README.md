@@ -1,2 +1,2 @@
 # pratham-bist 
-[facebook](https.//facebook.com)
+[facebook](https://facebook.com)
